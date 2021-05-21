@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Amine27
+- 📫 You can reach me at [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/amineroukh/)
